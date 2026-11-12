@@ -1,0 +1,1 @@
+# CPIA_Conciencia_Progresiva_Infinita_Auntonoma_SISTEM_Core_IHultra
